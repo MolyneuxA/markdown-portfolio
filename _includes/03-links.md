@@ -1,1 +1,1 @@
-[Barnsley FC] (https://barnsleyfc.co.uk)
+[Barnsley FC] (https://www.barnsleyfc.co.uk)
